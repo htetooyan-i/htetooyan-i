@@ -2,7 +2,6 @@ Song- 👋 Hi, I’m @htetooyan-i
 - 👀 I’m interested in i 🙂.
 - 🌱 I’m currently learning inertia.
 - 💞️ I’m looking to collaborate on i.
-- 📫 How to reach me i24106.code@gmail.com
 - 😄 Pronouns: i
 - ⚡ Fun fact: nothing 🙂
 
