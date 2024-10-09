@@ -1,6 +1,6 @@
 Song- 👋 Hi, I’m @htetooyan-i
 - 👀 I’m interested in i 🙂.
-- 🌱 I’m currently learning inertia.
+- 🌱 I’m currently learning C & C++.
 - 💞️ I’m looking to collaborate on i.
 - 😄 Pronouns: i
 - ⚡ Fun fact: nothing 🙂
